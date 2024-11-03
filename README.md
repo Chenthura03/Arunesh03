@@ -1,4 +1,4 @@
-🚀 Passionate Pre-Final Year Student | Aspiring Artificial Intelligence & Data Science Enthusiast 📊
+🚀 Passionate Final Year Student | Aspiring Artificial Intelligence & Data Science Enthusiast 📊
 
 👋 Hello there! I'm Chenthura Arunesh B, a driven final year student with a genuine interest in the captivating realms of Artificial Intelligence and Data Science. 🤖💻
 
